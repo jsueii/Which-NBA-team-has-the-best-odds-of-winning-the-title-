@@ -19,4 +19,4 @@ The Los Angles Lakers have a lot of things going for them ever since they pulled
 * Lebron being 34 going on 35
 
 ## Los Angles Clippers
-The Los Angles Clippers 
+The Los Angles Clippers became instat title contender overnight when they signed both 
