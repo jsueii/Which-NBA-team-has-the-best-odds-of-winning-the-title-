@@ -7,11 +7,9 @@ The 2019 - 2020 NBA season will be kicking off today October 22nd with the Los A
 The Los Angles Lakers have a lot of things going for them ever since they pulled the block buster trade making Anthony Davis a laker. One of them being, they're one of the favorites to win it all this year. With many teams scoring big in free agency, the Lakers also did their fair share; adding guys such as Danny Green, Dwight Howard, Avery Bradely, and Quinn Cook while retaining some of the guys from last year.
 
 **Pros**
-* Lebron & Anthony Davis pairing
 * Kyle Kuzma comming off the bench
 * Play Big
 * Defense
-* Danny Green
 * Lots of shooting
 * Great Spacing
 
