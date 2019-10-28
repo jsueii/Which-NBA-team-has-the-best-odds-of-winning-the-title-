@@ -10,6 +10,7 @@ The Los Angles Lakers have a lot of things going for them ever since they pulled
 * Lebron & Anthony Davis pairing
 * Kyle Kuzma comming off the bench
 * Play Big
+* Defense
 * Danny Green
 * Lots of shooting
 * Great Spacing
@@ -19,4 +20,26 @@ The Los Angles Lakers have a lot of things going for them ever since they pulled
 * Lebron being 34 going on 35
 
 ## Los Angles Clippers
-The Los Angles Clippers became instat title contender overnight when they signed both 
+The Los Angles Clippers became instant title contenders when they signed both Paul George and Kawhi Leonard. They are currently the favorites to win the Championship, however that doesn't mean they're untouchable.
+
+**Pros**
+* Depth
+* Defense 
+* Shooters
+* Loaded with talent
+
+**Cons**
+* Paul George and the concers around his injury
+
+## Golden State Warriors
+The Warriors are interesting. They lost Kevin Durant in free agency, and Klay Thompson is currently injured and is most likely out for the season. However, they did manage to snag D'Angelo Russell from the Booklyn Nets. Although D'Angleo Russell is a good addition, he doesn't solve their newfound defensive problems. Yes, they have scoring, however they are going to let up a lot of points; which is going to lead to losses.
+
+**Pros**
+* Scoring
+* Shooting
+
+**Cons**
+* Horrible Defense
+* Curry reliant
+* No Depth
+* Lacking Bigs
