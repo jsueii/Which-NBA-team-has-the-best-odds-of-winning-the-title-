@@ -43,3 +43,19 @@ The Warriors are interesting. They lost Kevin Durant in free agency, and Klay Th
 * Curry reliant
 * No Depth
 * Lacking Bigs
+
+## Philidelphia 76ers
+The 76ers have always been a few peices from becoming a true title contender. Throughout the past 2 or so years they've been hovering a little above average. However, this season with the resigning of Tobias Harris, Ben Simmons, and the additions of Al Horford and Josh Richardson; they have a serious team. However, the question that will always come up is: "Can Joel Embiid stay healthy?" Joel Embiid is their best player however, he's extremely injury prone, and that can be a liability come playoff time.
+
+**Pros**
+* Strong starting 5
+* Great Defense
+* Very tall which can be a problem for some teams
+
+**Cons** 
+* Not much shooting
+* Very top heavy
+* Depth is questionable 
+
+## Milwaukee Bucks
+The Bucks
