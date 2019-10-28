@@ -56,4 +56,14 @@ The 76ers have always been a few peices from becoming a true title contender. Th
 * Depth is questionable 
 
 ## Milwaukee Bucks
-The Bucks
+The Bucks suffered a little over the offseason by losing Malcolm Brogdon. He was their elite floor spacer and 3pt shooter. However they were able to somewhat replace him with Kyle Korver and Wesley Matthews. It's obvious what the Bucks are trying to do. They are trying to surround Giannis with as much shooting as possible, and did they do it? Yes. Although, with the loss of Macolm Brogdon, this puts more weight on Kris Middleton to produce the same or better all star numbers he showed last year. I'm not reall worried about Giannis because we all know he's going to get his 30pts, 11reb, and 8ast nightly.
+
+**Pros**
+* Giannis
+* 3pt shooting
+* Defense 
+
+**Cons**
+* Bench
+
+
