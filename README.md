@@ -67,6 +67,6 @@ The Bucks suffered a little over the offseason by losing Malcolm Brogdon. He was
 * Bench
 
 ## Houston Rockets
-The Rockets had their run with Chris Paul. They had 2 partly sucessful years with Chris Paul. Yes, they won many games (65 the first season and 53 the second)
+The Rockets had their run with Chris Paul. They had 2 partly sucessful years with Chris Paul. Yes, they won many games (65 the first season and 53 the second). However, with failure with bring home a championship in either years, its hard to call these years a success. So, the Rockets went out and traded their star point guard Chris Paul to aqquire Russell Westbrook. The addition of Russell Westbrook could be the change the Rockets needed; as Paul was getting up there in years and was past his prime, while on the other hand you have a prime Russell Westbrook hungry for a title.
 
 
