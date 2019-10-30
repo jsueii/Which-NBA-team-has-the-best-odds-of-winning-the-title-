@@ -67,6 +67,39 @@ The Bucks suffered a little over the offseason by losing Malcolm Brogdon. He was
 * Bench
 
 ## Houston Rockets
-The Rockets had their run with Chris Paul. They had 2 partly sucessful years with Chris Paul. Yes, they won many games (65 the first season and 53 the second). However, with failure with bring home a championship in either years, its hard to call these years a success. So, the Rockets went out and traded their star point guard Chris Paul to aqquire Russell Westbrook. The addition of Russell Westbrook could be the change the Rockets needed; as Paul was getting up there in years and was past his prime, while on the other hand you have a prime Russell Westbrook hungry for a title.
+The Rockets had their run with Chris Paul. They had 2 partly sucessful years with Chris Paul. Yes, they won many games (65 the first season and 53 the second). However, with failure with bring home a championship in either years, its hard to call these years a success. So, the Rockets went out and traded their star point guard Chris Paul to aqquire Russell Westbrook. The addition of Russell Westbrook could be the change the Rockets needed; as Paul was getting up there in years and was past his prime, while on the other hand you have a prime Russell Westbrook hungry for a title. They also live and die by the 3, which could cost them games as it did in the 2018 playoffs again the Golden State Warriors.
+
+**Pros**
+* 3pt shooting
+* Playmaking
+* Spacing
+* Pace
+
+**Cons**
+* Depth
+* Injuries
+* Closing out games
+* 3pt reliant
+
+## Brooklyn Nets
+The Brooklyn were one of the big winners this free agency. There were able to steal both Kyrie Irving (via Celtics) and Kevin Durant (via Golden State). However they did have to give something up though. The Warriors took D'Angelo Russell from the Nets becuase they refused to be left empty handed. Unfortunately for Nets fans, they won't feel these improvements until the 2020-21 NBA season. With Kevin Durant being out with achilles injury, Kyrie can only take them so far. I think we'll see a similar 5-6th seed Nets team as we saw last year.
+
+**Pros**
+* Talent filled roster
+* Shooters
+* Rim Defenders
+* Great Depth
+
+**Cons**
+* Kevin Durant injury (for now)
+
+
+
+
+
+
+
+
+
 
 
