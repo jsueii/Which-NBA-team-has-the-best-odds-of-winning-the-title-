@@ -67,6 +67,6 @@ The Bucks suffered a little over the offseason by losing Malcolm Brogdon. He was
 * Bench
 
 ## Houston Rockets
-
+The Rockets had their run with Chris Paul. They had 2 partly sucessful years with Chris Paul. Yes, they won many games (65 the first season and 53 the second)
 
 
