@@ -15,7 +15,7 @@ The Los Angles Lakers have a lot of things going for them ever since they pulled
 
 **Cons**
 * Minimal Depth
-* *Lebron*going being 34 going on 35
+* *Lebron* going being 34 going on 35
 
 ## Los Angles Clippers
 The Los Angles Clippers became instant title contenders when they signed both *Paul George* and *Kawhi Leonard*. They are currently the favorites to win the Championship, however that doesn't mean they're untouchable.
