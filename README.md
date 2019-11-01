@@ -92,7 +92,7 @@ The Brooklyn were one of the big winners this free agency. There were able to st
 
 **Cons**
 * *Kevin Durant* injury (for now)
-
+> Talent wins games, but teamwork and intelligence wins championships
 
 
 
